@@ -1,1 +1,0 @@
-Dom Gonta and Chat GPT
